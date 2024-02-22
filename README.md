@@ -1,1 +1,1 @@
-just another Electronics Engineer, dwindling across the universe of electronics. 
+Just another Electronics Engineer, dwindling across the universe of electronics. 
